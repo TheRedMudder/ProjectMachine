@@ -13,3 +13,9 @@
 ### Step 4
 - Reflect
   - Evernote.com
+
+# Hard-work
+## Give it your all or die trying
+
+# Presentation Matters
+# Think Like A Scientist in Everything you do
